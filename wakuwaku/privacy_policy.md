@@ -1,4 +1,4 @@
-# モンスト神殿カウンター Privacy Policyqaaaaa
+# モンスト神殿カウンター Privacy Policy
 
 ## 個人情報について
 
